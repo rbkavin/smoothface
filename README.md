@@ -2,7 +2,7 @@
 making edge smooth face mesh
 
 # kuno ig 
-https://www.instagram.com/kuno.fell.asleep/
+# https://www.instagram.com/kuno.fell.asleep/
 
 
 # tutorial LINK 
